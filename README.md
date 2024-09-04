@@ -1,10 +1,6 @@
 # 搬瓦工官网地址
 
-最新地址：[https://tz.059950.xyz](https://tz.059950.xyz)
-
-[bwh88.net](https://bwh88.net/aff.php?aff=73454)  
-
-[bwh81.net](https://bwh81.net/aff.php?aff=73454)
+最新地址：[https://t.192291.xyz](https://t.192291.xyz)
 
 ## 搬瓦工介绍
 
